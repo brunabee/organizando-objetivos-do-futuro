@@ -1,1 +1,0 @@
-# organizando-objetivos-do-futuro
